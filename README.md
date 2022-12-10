@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Oliver-Redeyoff
+- 👀 I’m interested in Computer Science
